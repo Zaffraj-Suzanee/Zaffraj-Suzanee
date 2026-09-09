@@ -26,7 +26,7 @@ I am an undergraduate student pursuing a **BSc (Hons) in Information Technology*
 
 **Email:** suzanee161@gmail.com
 **LinkedIn:** https://www.linkedin.com/in/zaffraj-suzanee-263377339  
-**Medium** https://medium.com/@suzaneemusadique59
+**Medium:** https://medium.com/@suzaneemusadique59
 
 </div>
 
